@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @AstridJr
-- 👀 I’m interested in Photography, nature and computers. 
+- 👀 I’m interested in photography, nature and computers. 
 - 🌱 I’m currently learning to code
 - 💞️ I’m looking to collaborate on a variety of different and interesting projects!
 - 📫 Feel free to reach me on skiefel.15@gmail.com
